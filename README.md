@@ -1,0 +1,2 @@
+# Amal
+A passionate student 
